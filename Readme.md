@@ -1,3 +1,3 @@
 Hello world
 
-bangladesh is a good country 
+this is islamic channel
